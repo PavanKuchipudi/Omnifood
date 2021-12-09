@@ -23,6 +23,8 @@ Local and organic: Our cooks only use local, fresh, and organic products to prep
 No waste: All our partners only use reusable containers to package all your meals.
 Pause anytime: Going on vacation? Just pause your subscription, and we refund unused days.
 
+
+
 ### How Omnifood works
 
 [Show big app images]
